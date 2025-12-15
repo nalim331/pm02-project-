@@ -1,5 +1,5 @@
 # pm02-project-
-## Nazarov Vyacheslav
+## Nazarov Vyacheslav and Dmitriev Danil
 
 ## Пара №1. 08:20 - 09:05
 
