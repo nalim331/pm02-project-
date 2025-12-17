@@ -1,3 +1,5 @@
+                                                                                            хуq
+
 # pm02-project-
 ## Nazarov Vyacheslav and Dmitriev Danil
 День 3/12 17.12.2025
